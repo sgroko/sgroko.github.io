@@ -15,3 +15,5 @@ sehr imponieirt. Die Farbe des Fells war beeindruckend. Außerdem war er immer s
 Puh sagt:
 
 > Ich Mag meine Freunde die Kinder
+
+<img src="https://www.stuttgarter-nachrichten.de/media.media.3bf864cc-646b-4548-b242-1ab6e171d931.original1024.jpg"/>
