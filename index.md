@@ -11,3 +11,7 @@ sehr imponieirt. Die Farbe des Fells war beeindruckend. Außerdem war er immer s
 * freundlich
 * sanft
 * gemütlich
+
+Puh sagt:
+
+> Ich Mag meine Freunde die Kinder
